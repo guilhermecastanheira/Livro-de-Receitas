@@ -1,6 +1,0 @@
-# Bolo de Fubá
----
-
-###Ingredientes:
-
-
